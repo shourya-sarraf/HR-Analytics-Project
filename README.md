@@ -51,7 +51,7 @@ I’m **Shourya Sarraf**, a BBA student at Amity Online, passionate about transf
 
 Feel free to connect or reach out!  
 📧 Email: shourya.sarraf933@gmail.com  
-🔗 [LinkedIn](www.linkedin.com/in/shourya-sarraf-7b9735398/)
+🔗 [LinkedIn](https://www.linkedin.com/in/shourya-sarraf-7b9735398/)
 
 
 ---
