@@ -2,7 +2,7 @@
 # 📊 HR Data Analytics Project – Power BI
 
 ### 👤 Created by: **Shourya Sarraf**  
-[🔗 Connect with me on LinkedIn](https://www.linkedin.com/in/clop93341/)
+[🔗 Connect with me on LinkedIn](https://www.linkedin.com/in/shourya-sarraf-7b9735398/)
 
 ---
 
